@@ -1,1 +1,0 @@
-# GLOBOSDARAk5cplg
